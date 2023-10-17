@@ -1,0 +1,1 @@
+Izlasiet šo vispirms!
